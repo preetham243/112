@@ -1,2 +1,3 @@
 The name of this future website is Cedar films, also known as Electro. As I said in the description, the campaign will go on from july 6th to july 9th, BUT if at least 10 people view Cedar films in the first 3 days, then it will go on until the end of july. I really want to make this a reality, so please watch it and if you want star it. If not, thats okay, have a good day but PLEASE, if possible, star it or watch it. And best of all? NO MONEY NEEDED! So you can just watch whenever you want without a subscription needed. The code is NOT 100% finished, so if you ever see it one time and see it again, dont not expect more movies.
-- Preetham, co-founder
+
+- Preetham
